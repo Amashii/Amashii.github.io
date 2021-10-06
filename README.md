@@ -1,0 +1,1 @@
+# Amashii.github.io
